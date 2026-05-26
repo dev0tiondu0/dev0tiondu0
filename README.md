@@ -1,19 +1,26 @@
-#### IT DOES NOT END HERE
-![tung](https://files.catbox.moe/226e4s.jpeg)
+<h2 align="center">IT DOES NOT END HERE</h2>
+<p align="center">
+  <img src="https://files.catbox.moe/226e4s.jpeg" alt="tung">
+</p>
 
-[atabook](https://voidbreaker.atabook.org) - [strawpage](https://ashdoons.straw.page/) - [rblx](https://www.roblox.com/users/1903854763/profile) - [pronouns.cc](https://pronouns.cc/@wafffleyaoi)
+<p align="center">
+  <a href="https://voidbreaker.atabook.org">atabook</a> | 
+  <a href="https://ashdoons.straw.page">strawpage</a> | 
+  <a href="https://www.roblox.com/users/1903854763/profile">rblx</a> |
+  <a href="https://pronouns.cc/@wafffleyaoi">pronouns.cc</a>
+</p>
 
 <p align="center">HIHI!! i’m toast/kayden but you can call me by whoever im cosplaying!!</p>
 
-i can be very awkward when interacting with people and i sincerely apologize for it
+<p align="center">i can be very awkward when interacting with people and i sincerely apologize for it</p>
 
-im usually afk/offtab so whisper to interact with me :P
+<p align="center">im usually afk/offtab so whisper to interact with me</p>
 
-don’t be afraid to int i don’t have (m)any friends so i’d really appreciate it : D please. 
+<p align="center">don’t be afraid to int i don’t have (m)any friends so i’d really appreciate it : D please.</p>
 
-c + h whenever unless i explicitly say not to !! cuddling makes me very joyous
+<p align="center">c + h whenever unless i explicitly say not to !! cuddling makes me very joyous</p>
 
-i will br tlaking about zaimon yaoi a lot and im sorry
+<p align="center">if you wanna know a lot more about me just check out my strawpage and pronouns.cc!!</p>
 
 
 
