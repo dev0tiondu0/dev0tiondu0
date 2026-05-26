@@ -3,7 +3,7 @@
 
 [atabook](https://voidbreaker.atabook.org) - [strawpage](https://ashdoons.straw.page/) - [rblx](https://www.roblox.com/users/1903854763/profile) - [pronouns.cc](https://pronouns.cc/@wafffleyaoi)
 
-HIHI!! i’m toast/kayden but you can call me by whoever im cosplaying!! 
+<p align="center">HIHI!! i’m toast/kayden but you can call me by whoever im cosplaying!!</p>
 
 i can be very awkward when interacting with people and i sincerely apologize for it
 
