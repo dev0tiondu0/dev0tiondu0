@@ -4,9 +4,9 @@
 </p>
 
 <p align="center">
-  <a href="https://voidbreaker.atabook.org">atabook</a> | 
-  <a href="https://ashdoons.straw.page">strawpage</a> | 
-  <a href="https://www.roblox.com/users/1903854763/profile">rblx</a> |
+  <a href="https://voidbreaker.atabook.org">atabook</a> ⟡ 
+  <a href="https://ashdoons.straw.page">strawpage</a> ⟡ 
+  <a href="https://www.roblox.com/users/1903854763/profile">rblx</a> ⟡ 
   <a href="https://pronouns.cc/@wafffleyaoi">pronouns.cc</a>
 </p>
 
