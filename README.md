@@ -20,6 +20,8 @@
 
 <p align="center">c + h freely whenever even if its not said in my name!! ships also int as LONG as its legal. even if im cuddling with someone else you can too cause cuddle piles are like radical. c+h is highly encouraged it makes me really joyous </p>
 
+<p align="center">please dont copy my skins. inspo is fine but dont try to directly replicate it, i put effort into these creatures okay. credit me at the VERY LEAST</p>
+
 <p align="center">if you wanna know a lot more about me just check out my strawpage and pronouns.cc!!</p>
 
 
