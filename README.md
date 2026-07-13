@@ -1,6 +1,6 @@
-<h2 align="center">IT DOES NOT END HERE</h2>
+<h2 align="center">i know who you pretend i am.</h2>
 <p align="center">
-  <img src="https://files.catbox.moe/226e4s.jpeg" alt="tung">
+  <img src="https://files.catbox.moe/ry6bkw.png" alt="yaoi">
 </p>
 
 <p align="center">
