@@ -1,6 +1,6 @@
-<h2 align="center">i know who you pretend i am.</h2>
+<h2 align="center">i know who you pretend i am</h2>
 <p align="center">
-  <img src="https://files.catbox.moe/ry6bkw.png" alt="yaoi">
+  <img src="https://files.catbox.moe/nkj6s3.png" alt="yaoi">
 </p>
 
 <p align="center">
