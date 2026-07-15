@@ -1,4 +1,4 @@
-<h2 align="center">i know who you pretend i am</h2>
+<h2 align="center">and then i go and spoil it all,</h2>
 <p align="center">
   <img src="https://files.catbox.moe/nkj6s3.png" alt="yaoi">
 </p>
@@ -23,6 +23,10 @@
 <p align="center">please dont copy my skins. inspo is fine but dont try to directly replicate it, i put effort into these creatures okay. credit me at the VERY LEAST</p>
 
 <p align="center">if you wanna know a lot more about me just check out my strawpage and pronouns.cc!!</p>
+<p align="center">
+  <img src="https://files.catbox.moe/j50n4i.png" alt="yaoi">
+</p>
+<h2 align="center">by saying something stupid like "i love you"</h2>
 
 
 
