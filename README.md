@@ -4,13 +4,13 @@
 </p>
 
 <p align="center">
-  <a href="https://voidbreaker.atabook.org">atabook</a> ⟡ 
+  <a href="https://battennaa.atabook.org">atabook</a> ⟡ 
   <a href="https://ashdoons.straw.page">strawpage</a> ⟡ 
   <a href="https://www.roblox.com/users/1903854763/profile">rblx</a> ⟡ 
   <a href="https://pronouns.cc/@wafffleyaoi">pronouns.cc</a>
 </p>
 
-<p align="center">HIHI!! i’m toast/kayden and you can also call me by whoever im cosplaying!! im a trans male and go by he/him. i like men if you couldnt tell</p>
+<p align="center">HIHI!! i’m toast/kayden and you can also call me by whoever im cosplaying!! im a trans male and go by he/him EXPLICITLY. PLEASE DONT USE THEY/THEM ON ME.</p>
 
 <p align="center">i can be very awkward when interacting with people and i sincerely apologize for it. i tend to get comfortable quickly tho if i like you!!</p>
 
