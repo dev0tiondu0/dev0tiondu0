@@ -1,4 +1,4 @@
-<h2 align="center">and then i go and spoil it all,</h2>
+<h2 align="center">baby, could you play along with me?</h2>
 <p align="center">
   <img src="https://files.catbox.moe/nkj6s3.png" alt="yaoi">
 </p>
@@ -26,7 +26,7 @@
 <p align="center">
   <img src="https://files.catbox.moe/j50n4i.png" alt="yaoi">
 </p>
-<h2 align="center">by saying something stupid like "i love you"</h2>
+<h2 align="center">baby, would that be alright with you?</h2>
 
 
 
